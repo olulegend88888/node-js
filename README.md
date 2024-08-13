@@ -1,2 +1,1 @@
-# I am a God
-Goatttt
+# Naught by Nature
